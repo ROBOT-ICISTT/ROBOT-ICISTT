@@ -2,6 +2,8 @@
 <br>
 ✦ call me vee !
 <br>
+✦ robot enthusiast, aroace loser, professional kitty cat
+<br>
 ✦ i go by any/all and i'm 18 :-)
 <br>
 ✦ c+h ALWAYS !!
