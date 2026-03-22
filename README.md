@@ -1,3 +1,3 @@
-## METAL CARDBOT, CHANGE UP !
+" METAL CARDBOT, CHANGE UP!"
 
 wip ;-)
