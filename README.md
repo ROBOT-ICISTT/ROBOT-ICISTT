@@ -2,7 +2,7 @@
 <br>
 ✦ call me vee !
 <br>
-✦ robot enthusiast, aroace loser, professional kitty cat
+✦ robot enthusiast, freak, professional kitty cat. talk to me about robot media !
 <br>
 ✦ i go by any/all and i'm 18 :-)
 <br>
