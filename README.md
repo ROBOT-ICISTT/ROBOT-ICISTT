@@ -12,3 +12,12 @@ PLEASE be aware that although i choose not to label myself as proship, i tend to
 <br>
 <br>
 omfg i hate github this is so hard. i'll make this look nice later
+<br>
+<br>
+<p align="center">
+  <img src="IMG_3293.gif" alt="blue cop push">
+</p>
+
+<p align="center">
+  <img src="IMG_3294.gif" alt="KILL HIM">
+</p>
