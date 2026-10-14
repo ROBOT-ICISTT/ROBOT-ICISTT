@@ -4,6 +4,8 @@
 <p align="center">c+h ALWAYS !! please w2i though ! i tend to be be offtab or preoccupied !</p>
 <p align="center">world’s worst talkative person. i love making friends.</p>
 <br>
+<p align="center">no dni i block freely. wont int with -14</p>
+<br>
 <p align="center">
   <img src="IMG_3293.gif" alt="blue cop push">
 </p>
