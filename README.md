@@ -1,11 +1,11 @@
-<h2 align="center"> ☆ " METAL CARDBOT, CHANGE UP! "  ★ </h2>
-<br>
-<p align=“center”>vee / kekii ✦ 19</p>
-<p align=“center”>robot & stickfig enthusiast, full-time kittycat ✦ c+h ALWAYS!!! w2i usually i’m soo talkative but im usually doing something</p>
-<br>
-<br>
-<p align=“center”>omfg i hate github i’m not going to make this look nicer</p>
-<br>
+<h3 align="center"> ☆ " METAL CARDBOT, CHANGE UP! "  ★ </h3>
+<div align="center” div>
+  kekii / vee ✦ 19
+  robot & stickfig enthusiast, full-time kittycat
+  c+h ALWAYS !! please w2i ! i tend to be preoccupied !
+  world’s worst talkative person. i love making friends
+
+  <a href=“https://roboticism.atabook.org”>sign my ata ~ ^w^</a>
 <p align="center">
   <img src="IMG_3293.gif" alt="blue cop push">
 </p>
