@@ -6,6 +6,7 @@
   world’s worst talkative person. i love making friends
 
   <a href=“https://roboticism.atabook.org”>sign my ata ~ ^w^</a>
+  </div>
 <p align="center">
   <img src="IMG_3293.gif" alt="blue cop push">
 </p>
